@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/adalberto-prado/**
 
-- ⚡ Fun fact **My favorite food its Mole**
+- ⚡ Fun fact **My favorite food is Mole**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
